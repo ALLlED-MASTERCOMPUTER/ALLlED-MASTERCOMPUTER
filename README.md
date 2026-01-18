@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=ALLlED-MASTERCOMPUTER&color=50c878&label=south+park+episodes+watched)<br/>
 ![](sp-png1-removebg-preview.png)<br/>
 emi<br/>
-15yrs, **audhd + schizophrenia**<br/>
+**audhd + schizophrenia**<br/>
 nonsharing yumeshipper/riako with 60+ f/o's! **doubles dni!** ASK ME ABOUT MY F/O'S PLEASE<br/>
 uhh I might isolate myself if im uncomfortable / overwhelmed<br/>
 im literally the #1 mysterion fan. fight me!!!<br/>
