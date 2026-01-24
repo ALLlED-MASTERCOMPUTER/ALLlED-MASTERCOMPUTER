@@ -1,10 +1,10 @@
 ![](https://komarev.com/ghpvc/?username=ALLlED-MASTERCOMPUTER&color=50c878&label=south+park+episodes+watched)<br/>
-![](sp-png1-removebg-preview.png)<br/>
+![](kép-removebg-preview(3).png)<br/>
 emi<br/>
 **audhd + schizophrenia**<br/>
 nonsharing yumeshipper/riako with 60+ f/o's! **doubles dni!** ASK ME ABOUT MY F/O'S PLEASE<br/>
 uhh I might isolate myself if im uncomfortable / overwhelmed<br/>
-im literally the #1 mysterion fan. fight me!!!<br/>
+im literally the #1 gakupo fan. fight me!!!<br/>
 <details>
   <summary>about me / other</summary>
   i prefer to be called emi, or mango by close friends.<br/>
