@@ -1,5 +1,5 @@
-![](https://komarev.com/ghpvc/?username=ALLlED-MASTERCOMPUTER&color=50c878&label=south+park+episodes+watched)<br/>
-![](kép-removebg-preview(3).png)<br/>
+![](https://komarev.com/ghpvc/?username=ALLlED-MASTERCOMPUTER&color=50c878&label=gakupo+fans)<br/>
+![](kép-removebg-preview(3).png){300px:300p}<br/>
 emi<br/>
 **audhd + schizophrenia**<br/>
 nonsharing yumeshipper/riako with 60+ f/o's! **doubles dni!** ASK ME ABOUT MY F/O'S PLEASE<br/>
